@@ -14,7 +14,7 @@ When the reefs ossified,
 I couldn't sea, because
 
 The San Andreas Pyrocumulus Palouse,
-Was burning again.
+Was still burning.
 
 One day,
 They'll notice eclipses again.
